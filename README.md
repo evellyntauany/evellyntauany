@@ -1,6 +1,6 @@
 # Hey 👋
 
-My name is Evellyn Tauany Rodrigues Lorena.🙋‍♀️🏳️‍🌈
+My name is Evellyn Tauany Rodrigues Lorena.🙋‍♀️
 
   🌍"Quanto mais eu sei, mais eu sou"💪
 
